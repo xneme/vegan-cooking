@@ -7,7 +7,6 @@
 - 1 tsp Baking powder
 - 1 tsp Vanilla sugar
 - 1 tsp Salt
-- 2 tsp Orgran No Egg
 - 8.5 dl Oat milk
 - 120 g Melted vegan margarine + some for greasing the paper
 
